@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SayanBanerjee09082002
+- 👋 Sup, Sayan Banerjee here
 - 📫 How to reach me 
       WhatsApp: (+91)9002926437
 
